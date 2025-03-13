@@ -1,1 +1,1 @@
-# New Magento Theme
+# New Magento Theme!
